@@ -1,0 +1,6 @@
+dont spend more than 20-30 minutes struggling with something
+
+schedule breaks
+
+
+I am commited to scheduling my time and getting to work right when i wake up
