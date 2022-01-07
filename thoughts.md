@@ -7,4 +7,5 @@ I am committed to scheduling my time and getting to work right when i wake up
 
 My girlfriend Cierra has been very supportive in my new ventures
 
-follow along with the teacher 
+follow along with the teacher
+2112
